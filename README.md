@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AbineshGirish
 - 👀 I’m interested in Innovations and technology
-- 🌱 I’m currently learning Electronics and Communication Engineering
+- 🌱 Electronics and Communication Engineering Graduate
 - 💞️ I'm looking to collaborate with inventors and tech innovators
 - 📫 Reach me by Mail : abineshgirish1602@gmail.com
 
